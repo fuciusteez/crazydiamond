@@ -1,1 +1,3 @@
 # crazydiamond
+
+God bless me
